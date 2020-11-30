@@ -8,4 +8,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: arthur+github ＠ [Collé Group](https://collegroup.com)
 - 😄 Pronouns: bro/dude
 - ⚡ Fun fact: I have never seen a 🛸
--->
