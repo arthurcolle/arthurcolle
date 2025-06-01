@@ -1,3 +1,5 @@
 ### Arthur M. Collé 👋
 
-- 📫 arthur＠[collegroup.com](https://collegroup.com)
+- 📲 +1 301 800 5595
+- 📫 arthurcolle@gmail.com
+- 📫 arthur@distributed.systems 
